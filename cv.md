@@ -15,7 +15,7 @@ not yet
 
 ### Education:
 - International Institute for the Humanities and Economics (International law)
-*****
+******
 
 ### English:
 A2
